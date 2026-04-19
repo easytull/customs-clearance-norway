@@ -31,3 +31,8 @@ For professional customs clearance services in Norway, visit:
 ## Keywords
 
 customs clearance Norway, import export Norway, customs broker Norway, HS codes Norway, Norwegian customs regulations
+
+## Related services
+
+Customs clearance in Sweden:
+https://easytull.se
